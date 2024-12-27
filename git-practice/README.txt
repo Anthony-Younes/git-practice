@@ -1,0 +1,1 @@
+MAIN goals: Family, God, School, Gym(powerlifting), content, coding
